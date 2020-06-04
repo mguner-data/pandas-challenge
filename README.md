@@ -12,4 +12,4 @@ However, per person gamers less than 10 years old and the gamers of age range 35
 more gamers between the age range of 35-39. 
 
 3) Most popular and most profitable item of the gaming company is "Final Critic" and it was followed by "Oathbreaker, Last Hope of the
-Breaking Storm".  Company might spend more time and effort of maintaining and improving these games to cater the gamers. 
+Breaking Storm".  Company might spend more time and effort on maintaining and improving these games to cater the gamers. 
